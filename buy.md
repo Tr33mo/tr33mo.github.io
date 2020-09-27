@@ -11,6 +11,6 @@ Note: Most people like to be posted Vetiver as local nurseries are difficult to 
 
 I have pickup prices or delivery prices + postage costs. Prefer to post on Monday or Tuesday after soaking the plants from a weekend divide so your plants arrive fresh depending on how far they have to go.
 
-Please, if it is at all possible, use local nurseries to you so as to avoid postage costs and 'transport miles'. This is the ethical ecological choice to make. Don't ship Vetiver across the country to save a few dollars, there are significant hidden environmental costs in transport.
+Please, if it is at all possible, use local nurseries to you so as to avoid postage costs and 'transport miles'. This is the ethical ecological choice to make. Don't choose to ship Vetiver across the country to save a few dollars, there are significant hidden environmental costs in transport.
 
 Extra Note: I do not have mobile reception at all times so email or similar is the best form of contact. My apologies.
