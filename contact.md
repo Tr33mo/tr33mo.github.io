@@ -11,4 +11,4 @@ title: Contact Erosion QLD
 	<input type="submit" value="Send">
 </form>
 <br />
-For the privacy-conscious or discerning messenger, you can send an encrypted message to @vetivergrass:matrix.org [(https://matrix.org/try-now/)](https://matrix.org/try-now/) which may have a slower turnaround time between a response.
+For the privacy-conscious or discerning messenger, you can send an encrypted message to **@vetivergrass:matrix.org** [(https://matrix.org/try-now/)](https://matrix.org/try-now/) which may have a slower turnaround time between a response.
