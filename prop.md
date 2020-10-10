@@ -8,6 +8,8 @@ A downloadable [**PDF pictorial guide**](/assets/Vetiver Propagation subtropics.
 [![alt text](/assets/img/thumbs/prop.jpg "Dividing Vetiver into 'slips'")](/assets/img/prop.jpg)
 
 [![alt text](/assets/img/thumbs/prop2.jpg "Digging Vetiver for propagation")](/assets/img/prop2.jpg)
+
+Click [**here**](/assets/Vetiver Propagation subtropics.pdf) (10.3MB) to download the PDF.
 ___
 
 Terminology of Vetiver material:
