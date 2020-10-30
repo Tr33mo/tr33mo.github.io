@@ -25,4 +25,4 @@ A quality Vetiver slip has 2-3 tillers and a piece of crown (where the shoots gr
 ___
 
 
-A guide to possible nursery layouts can be found [**here**](https://www.erosionqld.com.au/blog/2020/10/30/nursery/)
+A guide to possible nursery layouts can be found [**here**](https://www.erosionqld.com.au/blog/2020/10/30/nursery/).
