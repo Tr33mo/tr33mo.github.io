@@ -26,3 +26,7 @@ ___
 
 
 A guide to possible nursery layouts can be found [**here**](https://www.erosionqld.com.au/blog/2020/10/30/nursery/).
+
+___
+
+A Frequently Asked Questions document can be found [**here**](/assets/Vetiver FAQ.pdf).
