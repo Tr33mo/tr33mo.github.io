@@ -13,7 +13,11 @@ ___
 
 ***Chrysopogon zizanioides* - Vetiver Grass** (or formerly known as Vetiveria zizanioides).
 
-A [**sterile**](http://www.vetiver.org/AUS_weediness.pdf), clumping grass to 1.5m high and 1m wide usually used specifically in an unbroken hedgerow system for erosion control. The extremely deep vertical roots and stiff stems can increase shear strength of soil, slow water and force silt out behind it, backing up soil/organic matter and growing from higher nodes over time. Some hedges are at least 100 years old and have created 2m high terraces behind them.
+A quote from Dr. Paul Truong:
+
+*Vetiver's full botanical name is Chrysopogon zizanioides Roberty L. Vetiver originates in South India. In Australia it is registered as Monto Vetiver, which is the only Vetiver certified for various applications. Monto Vetiver is [**sterile**](http://www.vetiver.org/AUS_weediness.pdf), it flowers but set no seeds, so no weed potential. Because of its sterility it has to be subdivided from a mother plant. So each subdivision is genetically identical to each other and known as clone. A special characteristics of clonal plants is they grow closely to each other, forming a thick and continuous hedge.*
+
+A clumping grass to 1.5m high and 1m wide usually used specifically in an unbroken hedgerow system for erosion control. The extremely deep vertical roots and stiff stems can increase shear strength of soil, slow water and force silt out behind it, backing up soil/organic matter and growing from higher nodes over time. Some hedges are at least 100 years old and have created 2m high terraces behind them.
 
 Fast-growing, very drought-tolerant, frost-tolerant, salt-tolerant, inundation-tolerant, pH range-tolerant, heavy metal-tolerant, will regenerate from the crown after a fire, and can be cut 2-4 times a year for bulk sterile mulch. The roots are aromatic and used for essential oil. Leaves can be used for fodder, handicrafts, and roof thatching.
 
