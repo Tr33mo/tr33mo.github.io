@@ -31,7 +31,7 @@ A propagation pictorial guide for the subtropics can be found [**here**](/prop/)
 
 A Frequently Asked Questions document can be found [**here**](/assets/Vetiver FAQ.pdf).
 
-An extensive range of applications in PDF form can be found [**here**](http://www.vetiver.org/TVN_VS_GAL_HR%20/index.htm) or in photo form [here](https://picasaweb.google.com/112053823950476566695).
+An extensive range of applications in PDF form can be found [**here**](http://www.vetiver.org/TVN_VS_GAL_HR%20/index.htm) or in photo form [**here**](https://picasaweb.google.com/112053823950476566695).
 
 ___
 
