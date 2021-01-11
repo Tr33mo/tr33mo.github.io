@@ -27,9 +27,11 @@ Can be used to phytoremediate and bioaccumulate nitrogen, phosphorous, metals, a
 
 Requires specific planting/propagation techniques and at least 50% sun.
 
-A propagation pictorial guide for the subtropics can be found [here](/prop/).
+A propagation pictorial guide for the subtropics can be found [**here**](/prop/).
 
-An extensive range of applications in PDF form can be found [here](http://www.vetiver.org/TVN_VS_GAL_HR%20/index.htm) or in photo form [here](https://picasaweb.google.com/112053823950476566695).
+A Frequently Asked Questions document can be found [**here**](/assets/Vetiver FAQ.pdf).
+
+An extensive range of applications in PDF form can be found [**here**](http://www.vetiver.org/TVN_VS_GAL_HR%20/index.htm) or in photo form [here](https://picasaweb.google.com/112053823950476566695).
 
 ___
 
