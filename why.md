@@ -11,7 +11,7 @@ ___
 
 [![alt text](/assets/img/thumbs/why.jpg "A vigorous clump of Vetiver with post hole shovel for scale")](/assets/img/why.jpg)
 
-***Chrysopogon zizanioides* - Vetiver Grass** (or formerly known as Vetiveria zizanioides). Pronounced similarly to 'CHRY so PO gon ZI za NIOI des'.
+***Chrysopogon zizanioides* - Vetiver Grass** (or formerly known as Vetiveria zizanioides). Pronounced similarly to 'CRY-so-PO-gone, ZAI-za-NEE-OI- dees'.
 
 A quote from Dr. Paul Truong:
 
