@@ -27,7 +27,7 @@ ___
 
 A **Planting Guide** can be found [**here**](/assets/Vetiver Planting Guide.pdf) (17.7MB).
 
-__
+___
 
 
 A guide to possible nursery layouts can be found [**here**](https://www.erosionqld.com.au/blog/2020/10/30/nursery/).
