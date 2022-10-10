@@ -5,7 +5,7 @@ permalink: /why/
 ---
 ___
 
-An excellent animated video regarding the Vetiver system and its uses [**here on Vimeo**](https://vimeo.com/283084349/893e726b2a). It is recommended to start with this.
+An excellent animated video regarding the Vetiver system and its uses [**here on Vimeo**](https://vimeo.com/283084349/893e726b2a). It is recommended to start with this. [Hosted here as a back up](/assets/CCSA Building on Vetiver 1080p.mp4)
 
 ___
 
